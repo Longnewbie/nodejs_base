@@ -1,1 +1,1 @@
-No reproduction or copying for any purpose without permission, please respect the author.
+Reproduction in any form without permission is strictly prohibited, please respect the author.
